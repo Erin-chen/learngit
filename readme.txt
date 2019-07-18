@@ -1,2 +1,3 @@
 I like you but just like you.
 Translate to chinese:
+纵然万劫不复，纵然相思入骨，我也待你眉眼如初，岁月如故。
